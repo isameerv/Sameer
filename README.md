@@ -68,6 +68,6 @@ No obligation.
 
 Just practical advice you can use.
 
-🌐 www.sameerbuild.com
+🌐 www.sameervishwakarma.com
 
-📧 hello@sameerbuild.com
+📧 hello@sameervishwakarma.com
